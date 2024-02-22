@@ -1,0 +1,5 @@
+- Hello helloooo! I'm Vinnie, nice to meet you! :D I'm the host, we're an osdd-1b system, please be mindful!
+- ajnalkjsnfkja we kinda have trouble understanding some things so please be patient with us!!
+- ^_^ Please do interact with care, we are very sensitive!
+- 19! Crazy, right? :]
+- Current Hyperfixations!!: Phighting, Roblox Myths, ATF: Wintertide, Minecraft, Regretevator, Thunder Science Security (TSC).
